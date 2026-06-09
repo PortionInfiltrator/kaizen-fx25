@@ -1,4 +1,4 @@
-
+kaizen Script secret offers the most advanced kaizen Script, with teleport and no cooldown. Perfect for dominating any match.
 
 
 
